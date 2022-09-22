@@ -1,1 +1,1 @@
-## Hi, I'm Joe! :rocket: :)
+## Hey, I'm Joe! :rocket:
